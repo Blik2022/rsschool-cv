@@ -1,1 +1,1 @@
-https://Blik2022.github.io/rsschool-cv/cv
+https://Blik2022.github.io/rsschool-cv/
